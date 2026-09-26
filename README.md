@@ -1,1 +1,1 @@
-# Gal-ctus
+# Galáctus
